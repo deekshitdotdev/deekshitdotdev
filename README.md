@@ -94,7 +94,7 @@ If you have an idea, let's build it.
 ## 📫 Reach Me
 
 * GitHub: @deekshitdotdev
-* LinkedIn: https://www.linkedin.com/in/deekshi/
+* LinkedIn: Pending..
 
 ---
 
